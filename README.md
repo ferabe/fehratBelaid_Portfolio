@@ -71,6 +71,6 @@ Je suis motivé par la volonté de maîtriser les outils de la data pour accompa
 
 - Nouvelles technologies et intelligence artificielle
 - Sport et performance
-- Rédaction d’articles scientifiques avec analyses statistiques de A à Z  
+- Rédaction d’articles scientifiques avec analyses statistiques  
   [➡️ Mon profil ResearchGate](https://www.researchgate.net/profile/Ferhat-Belaid)
 
